@@ -9,6 +9,8 @@ Remastered
 
 https://daramet.com/MK_JH
 
+![unknown_2025 01 19-06 23_2](https://github.com/user-attachments/assets/e8e7b6b7-d261-4b1e-b592-62050faf0c48)
+
 ![unknown_2025 01 19-03 49](https://github.com/user-attachments/assets/cf352598-1155-4ac9-b82f-9eac0ae5d7e2)
 ![unknown_2025 01 19-03 41_4](https://github.com/user-attachments/assets/5bd0aa23-8f3d-4c52-8e20-3e89a2a3ffa6)
 ![unknown_2025 01 19-03 29](https://github.com/user-attachments/assets/58264acd-051e-4ad3-8127-082776cf107e)
